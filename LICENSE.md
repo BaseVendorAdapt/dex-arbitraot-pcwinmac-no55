@@ -1,4 +1,4 @@
-# 
+# Melhor dex arbitrage bot complementos para Mac OS | Ultimato dex arbitrage bot complementos para PC Windows. Com acompanhamento de carteira e sinais de reversão — otimizado para máximo desempenho em cada plataforma.
 
 
 
